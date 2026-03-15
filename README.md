@@ -1,2 +1,0 @@
-# sosmed-files
-sales promo
